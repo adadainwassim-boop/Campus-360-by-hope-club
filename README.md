@@ -1,0 +1,1 @@
+hey there, everyone I created this site just to help the student deal with their problem and help them understand that they're not alone and they can enjoy the university by doing more than showing up every day. I would love to know your thoughts about it peace and love.
